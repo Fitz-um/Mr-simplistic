@@ -1,4 +1,4 @@
-# Hi there, I'm Fitsum👋
+# Hi there👋, I'm Fitsum
 
 ## About Me
 
